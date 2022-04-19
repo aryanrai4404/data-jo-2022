@@ -1,2 +1,2 @@
 # data-jo-2022
-practice mfffffff!
+Where the cool kids meet
